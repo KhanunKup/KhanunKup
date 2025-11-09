@@ -1,4 +1,4 @@
-# Hi I'm Thitiwut Khrutchuen, Welcome to my Profile☕
+# Hi I'm Khanun, Welcome to my Profile☕
 
 ### Education 
 - Visuttharangsri School. [ESMTE] [VS119]
